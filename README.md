@@ -5,5 +5,5 @@
 - ericphoon2004@gmail.com
 - 😄 Pronouns: He/Him
 
-This will mainly used for saving links specifically for recent projects/ assignments I've made!
+This will mainly used for saving links specifically for recent projects, notes and assignments I've made!
 
